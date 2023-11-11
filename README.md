@@ -1,3 +1,38 @@
+## Varma Techniques
+
+1. Amirtha kala Adangal
+Issues:
+- Breathing issues, immunity power weakness, Increases Prana Sakthi, Heals fever, Heals Menstrual Bleeding
+
+Steps:
+1. Patient to take 3 inhale breaths fron bottom spine to head.
+2. Check for breathing of pt left or right nostril. Then do the proceedure on the breath side.
+3. Press on k2 with thumb and index finger on the opposite side of k2.
+4. Press one finger above the Liv1 (tip of the nail) with mustard seed or kadugadaki varma stick for 60 secs.
+5. Hold the thumb and shake it.
+6. Hold the other 4 fingers and shake it.
+7. Now release the index finger and then thumb finger.
+8. If pt & doctor run the same side breath, then change the breath and then do the proceedure.
+
+2. Surya medu varmam
+Issues:
+- Kanda sali, irumal, thonda karakarappu, sudden loss of voice
+
+Stick: melagaduki kattai
+
+Steps:
+1. Check the breath flow left or right, then do the proceedure on the breath side.
+2. Press on LU10 on the white area in "Yendhal murai" 3 times.
+3. Other method: 
+- For Men, Press 60-30-15 Secs
+- For Women, Press 30-15-15 Secs
+
+3. Nandhi Varmam
+Issues: All thyroid issues
+
+Steps:
+1. 
+
 ## Thailam Seimuraigal
 
 ### 1. Vadhakodari Thailam
