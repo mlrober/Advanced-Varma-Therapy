@@ -126,4 +126,86 @@ Salts
 37. Vellarugu saar
 
 ### Oil
-- 
+
+1. Pasunei (2kg)
+2. Honey (2kg)
+3. Thadiankai - Saaru eduthu 1 litre ai 1/2 litre aaga surukavendum
+
+Benefits:
+- Ilupu, kal mootu vali maarum, Cunnambu sathu koodum
+
+Contra Indications
+- Kidney Stones irundha payan padutha koodathu
+
+3. Pinda Thailam
+
+1. Nanari (200gm)
+2. vembanam (200gm)
+3. sevalai (200gm)
+4. poovathu (200gm)
+5. vella kungiliyam (200gm)
+6. kundhirigam melagu (400gm)
+7. Nallennai (4 lr.)
+
+Benefits
+- Relieves Muscle Tightness (thasai pidipu), kolutppu katti
+
+4. Ulundhu Thailam
+
+1. Karupu ulundhu (31/2 kg)
+2. dasa moolam (1kg)
+3. ellu ennai (5 ltr)
+4. marendhu (vellaattu eraichi) elumbu illa thasai (1kg)
+5. thirikadugu
+6. madhiram
+7. pasumpaal (1ltr)
+8. geeviyam
+9. kottam
+10. omam
+11. manjati
+12. umathi
+13. thippili moolam
+14. Indhuppu
+15. kari uppu
+16. kallu uppu
+17. sadhakuppai
+18. chenagaduneer
+19. amukkaraver
+20. amanakku ver
+21. poora kali ver
+22. akni moolam
+
+Benefits
+- Pakkavaadham, sirasu vakam, kai kaal asaivu vaadham, madaku neeta mudiyamai, poruthu vali, nimirndhu nikkamudiyamai, soolai, varmathaal vandha vaadham, ul udal virayal, udal asathi, narambu pudaichal, narambu vali, thimirvaadham, muga vaadham theerum
+
+6. Vasavu Ennai
+
+1. Vendhayam 5009
+2. nanari 150g
+3. kattichanni 150g
+4. sukku 150g
+5. vasambu 150g
+6. soolan 100g
+7. katam 150g
+8. nayam sendruni 100g
+9. nell endhi 5lit
+10. Avathei 150g
+11. sadhaver 150g
+
+Herbs
+1. Thunai pattai
+2. mayil nei
+3. murunga pattai
+4. karadi nei
+5. sothu katralai
+6. nathai soori
+7. adathodai
+8. kaattu pani nei
+9. mala paambu nei
+
+7. Parangi Kasayam (Vaadham)
+
+1. Parangi Pattai
+2. Vadha madaki
+3. Veppam pattai
+4. Pirambu Kilangu
