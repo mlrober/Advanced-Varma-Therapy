@@ -209,3 +209,58 @@ Herbs
 2. Vadha madaki
 3. Veppam pattai
 4. Pirambu Kilangu
+
+### Nadi Varmangal
+
+#### Idakalai Nadi
+
+- idakalai nadi valadhu kaal peru viral aarambithu idathu naasi adaindhu angirundhu idathu kai peru viral adaigiradhu
+
+- Thunai Varmangal
+	- pidari varmam
+
+- 1 padu varmam
+	- 1 nadi, 1 vaayu, 8 inai varmam
+
+- idakalai naadiyil 8 varmam maruvudhappa 
+guruvaana idakalaiyaam naadi thane
+kodigiye pidari varmam marigi nirkum
+kalayaana kalaviyaagum
+kanmaniye 8 varmam vinodham appa
+uru vaana arali menmai vinodham appa
+uru vaana uthamane patchi nema mandhira kaalam
+thiruvaana pidari varmathil 8 thiyambinaadho varmam 8 inidhaan appa
+
+- 8 Inai Varmam
+	- vinodha varmam
+		- ner varmathirku pin pakkathil 1 viral alavuku iru pakkam ulladhu
+	- arali varmam
+		- chippiyin nadu paguthirku pakkathil ulla mudhugelumbil ulladhu (T5 vertebra)
+	- menmai varmam
+		- nattellu varmathirku 1 viral iru pakkavaatil ulladhu
+	- kona varmam
+		- idathu pakka thaadayin valaivu elumbu munaiyil ulladhu
+	- nema varmam
+		- thilartha varmathil irundhu 2 viral mel ulladhu
+	- patchi nema varmam
+		- nema varmathirku 1/2 viral pakkavaatil ulladhu
+	- ner varmam maruvarmam
+		- thummilirundhu 10 viral keel ulllldhu
+	- mandhira kaalam
+		- karu vizhiyin keel ulladhu
+	
+#### Pingalai Nadi
+
+- indha naadi idathu kaal peru viralirundhu arambithu vala pakka mooku adainthu angirundhu purapattu vala kai peru viral adigiradhu
+
+- Thunai Varmam
+	- Natchathira Kaalam
+- 8 Inai Varmam
+	- Porchai Varmam
+	- Kutri Varmam
+	- Poigai Varmam
+	- Kamboori Varmam
+	- Annan Kaalam
+	- Minvetti Varmam
+	- Amirthaandhai Varmam
+	- Moorthi Varmam
